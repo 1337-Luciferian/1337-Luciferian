@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @1337-Luciferian
 - 👀 I’m interested in ... Justice, Ethics, and Morals
 - 🌱 I’m currently learning ... Everything and that will never stop
-- 💞️ I’m looking to collaborate on ... EHHH....
+- 💞️ I’m looking to collaborate on ... Bearing and Shedding Light
 - 📫 How to reach me ... Hopes and Dreams.
 
 <!---
